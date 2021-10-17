@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tatop
+- 👀 I’m interested in Biomedical Engineering
+- 🌱 I’m currently learning Cyber Security
+- 💞️ I’m looking to collaborate on sto cazzo
+- 📫 How to reach me @pietro.magnii on Instagram
